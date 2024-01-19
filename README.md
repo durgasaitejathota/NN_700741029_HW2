@@ -1,1 +1,3 @@
-# NN_700741029_HW2
+Durga Sai Teja Thota
+700741029
+Drive link : 
